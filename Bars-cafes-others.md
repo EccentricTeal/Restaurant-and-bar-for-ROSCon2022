@@ -100,3 +100,11 @@ There are several things to note.
 - Non-Japanese-friendliness: You can communicate with the staff in English for sure
 - Address: Japan, 〒604-8004 Kyoto, Nakagyo Ward, Nakajimacho, 90, Felicità, 1F
 - Comment: If you already miss some western tastes during ROSCon, this is the place to go. There are many draught lager beers, ales, and fish & chips. 
+
+## VODKA BAR Nakanishi
+- URL: https://tabelog.com/kyoto/A2601/A260301/26004757/
+- Very tiny classical silent bar. You can choose various vodka and several foods.
+- Price range 20$~
+- Only 7~10 chairs. I remember that booking service is not available.
+- Non-Japanese-friendlines: no
+- Address: 〒604-8011 Kyoto-fu, Kyoto-shi, nakakyo-ku, wakamatsu-cho 138-4 
